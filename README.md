@@ -7,4 +7,6 @@ Another persona.
 https://www.instagram.com/elliotdouglasfairbanks/
 Another persona
 https://www.instagram.com/johneast_losangeles/
+Another persona
+https://www.instagram.com/juancarlosparedestrujillo/
 Many other personas
