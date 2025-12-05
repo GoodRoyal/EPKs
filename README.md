@@ -1,6 +1,9 @@
+Video if you must:
+https://www.facebook.com/reel/1705962123043948
 Funny Personas
 https://x.com/8secguru
 https://x.com/AiDirectorX
+https://www.facebook.com/jcptmagg
 All Art is Sold.
 https://www.saatchiart.com/elliotdouglasfairbanks
 Another persona.
